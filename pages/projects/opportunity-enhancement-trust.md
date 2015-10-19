@@ -54,6 +54,14 @@ Delivering DSTF alongside, (or training up) club community staff
 
 DTSF courses delivered 
 
+Kilmarnock visited in September and are recruiting students to deliver the course to.
+
+Hibernian FC staff training day is on Tuesday 20th October.
+
+Montrose are looking at beginning of next year for a delivery date.
+
+Albion Rovers are interested, we will be setting up a visit there asap.
+
 ### Phase 4 January 2016 - March 2016
 
 Follow up and assist DSTF students with moving into further training or employment
